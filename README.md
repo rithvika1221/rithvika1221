@@ -6,9 +6,8 @@
 
 
   - 🌱 Freshman at North Creek High School
-  - 👯 I’m looking to collaborate on Projects
   - 📫 How to reach me on LinkedIn : [Linkedin - @rithvika-devisetti-b92a70266](https://www.linkedin.com/in/rithvika-devisetti-b92a70266?trk=public_profile_browsemap)
-  - 😄 Pronouns: She/Her
+  
     
   </tr>   
   </table>
