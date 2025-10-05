@@ -5,7 +5,7 @@
 <br/>
 
 
-  - 🌱 Freshman at North Creek High School
+  - 🌱 Junior at North Creek High School
   - 📫 How to reach me on LinkedIn : [Linkedin - @rithvika-devisetti-b92a70266](https://www.linkedin.com/in/rithvika-devisetti-b92a70266?trk=public_profile_browsemap)
   
     
